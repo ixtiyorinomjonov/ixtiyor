@@ -1,0 +1,2 @@
+# ixtiyor
+juda soz
